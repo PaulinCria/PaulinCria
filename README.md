@@ -1,8 +1,8 @@
 # Sobre Mim
 -Olá,meu nome é Paulo Henryk!!
 - :bear: Meu Interresse é ser Barbeiro
-- :smiling_imp: Sendo calmo ate o ultimo segundo....
-- 💞 0% de amor, não fode aqui e brocasito
+- :smiling_imp: mantendo a postura até o ultimo segundo de vida....
+- 💞 0% de amor, o resto que se foda
 - 📫 @henrykpaulo950@gmail.com chame chame!!
 
 Sempre na postura na emoção ja tem varios!!
